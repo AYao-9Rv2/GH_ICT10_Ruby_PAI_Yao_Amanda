@@ -1,0 +1,1 @@
+# GH_ICT10_Ruby_PAI_Yao_Amanda
